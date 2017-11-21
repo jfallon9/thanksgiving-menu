@@ -11,6 +11,7 @@
 * lemon
 * can of corn
 * jalapeno pepper
+* 4 rome and 4 granny smith apples
 
 ## Herbs
 
@@ -33,6 +34,7 @@
 * elbow or penne pasta 24 oz
 * chicken stock
 * brown sugar
+* dark brown sugar
 * mustard
 * harissa paste
 * baking powder
@@ -41,10 +43,10 @@
 
 ## Diary
 
-* 12 sticks butter
-* eggs
+* 16 sticks butter
+* 1 dozen eggs
 * 1 gallon whole milk
-* 1/2 cup heavy cream
+* 1 cup heavy cream
 * 1/2 cup buttermilk
 * 8 oz gruyere
 * 8 oz comte or marscapone
