@@ -25,6 +25,8 @@
 
 ## Oil/Vinegar
 
+* balsamc vinegar
+
 ## Grocery
 
 * panko
