@@ -10,7 +10,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 ## Sides
 
-* Dressing/stuffing (need recipe)
+* [Apple, Sausage and Herb Dressing](http://www.foodnetwork.com/recipes/ina-garten/sausage-and-herb-stuffing-recipe-1943434)
 * [Brussel Sprouts](https://www.slenderkitchen.com/recipe/crispy-balsamic-brussel-sprouts)
 * [Mac and Cheese](https://www.saveur.com/article/Recipes/Artisanal-Macaroni-and-Cheese)
 * Cranberry sauce. I think MBD has a recipe for these.
