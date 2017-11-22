@@ -27,6 +27,7 @@
 * chicken stock
 * brown sugar
 * harissa paste
+* pecans
 
 ## Diary
 
