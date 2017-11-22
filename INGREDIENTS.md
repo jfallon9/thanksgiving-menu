@@ -2,13 +2,11 @@
 
 ## Vegetables
 
-* brussel sprouts
 * garlic 2-3 heads
-* 4 lbs yukon gold potatoes
-* shallot
-* 1 onion
+* shallots
+* 3 onion
 * celery
-* lemon
+* lemons
 * can of corn
 * jalapeno pepper
 * 4 rome and 4 granny smith apples
@@ -22,29 +20,18 @@
 * thyme
 * bay leaves
 
-## Meat
-
-## Oil/Vinegar
-
-* balsamc vinegar
-
 ## Grocery
 
 * panko
 * elbow or penne pasta 24 oz
 * chicken stock
 * brown sugar
-* dark brown sugar
-* mustard
 * harissa paste
-* baking powder
-* baking soda
-* honey
 
 ## Diary
 
 * 16 sticks butter
-* 1 dozen eggs
+* 2 dozen eggs
 * 1 gallon whole milk
 * 1 cup heavy cream
 * 1/2 cup buttermilk
