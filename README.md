@@ -2,6 +2,10 @@
 
 For the upcoming Thanksgiving feast I have put together the following document describing the menu, and the proposed recipes we use to bring everything together for a fun and fabulous feast! I've divided it up into 3 sections; entrees, sides and desert. Recipes are listed, and Im thinking of trying out a dry brining method for the turkey breast instead of a traditional wet brine, see the turkey section below for additional details and some links to articles describing the science behind brining, which is quite interesting. The desert section is a bit bare at the moment as I think Martha has many of these recipes lying around the house on paper and such. 
 
+## Appetizer
+
+* [Cranbery Brie Bits](http://www.delish.com/cooking/recipe-ideas/recipes/a56610/cranberry-brie-bites-recipe/)
+
 ## Entrees
 
 * Turkey Breast. This one I'm torn over whether to try a traditional wet brine or a dry brine. [This article](http://www.seriouseats.com/2012/11/the-food-lab-the-truth-about-brining-turkey-thanksgiving.html) describes the issues with a traditional brine and why a dry brine (basically salt the turkey instead of soaking in water) is better. Im leaning towards the [dry brine method described here](http://www.seriouseats.com/2014/11/quick-and-dirty-guide-to-brining-turkey-chicken-thanksgiving.html) and [this herb butter based roasting recipie](http://www.seriouseats.com/recipes/2014/11/herb-butter-rubbed-crisp-skinned-butterflied-spatchcock-roast-turkey-thanksgiving-recipe.html)
