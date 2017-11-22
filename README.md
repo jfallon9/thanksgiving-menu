@@ -4,7 +4,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 ## Appetizer
 
-* [Cranbery Brie Bits](http://www.delish.com/cooking/recipe-ideas/recipes/a56610/cranberry-brie-bites-recipe/)
+* [Cranberry Brie Bits](http://www.delish.com/cooking/recipe-ideas/recipes/a56610/cranberry-brie-bites-recipe/)
 
 ## Entrees
 
