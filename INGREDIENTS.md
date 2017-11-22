@@ -2,7 +2,7 @@
 
 ## Vegetables
 
-* garlic 2-3 heads
+* garlic 4 heads
 * shallots
 * 5 onion
 * celery
