@@ -1,6 +1,6 @@
 # Menu for Thanksgiving 2017
 
-For the upcoming Thanksgiving feast I have put together the following document describing the menu, and the propsed recipes we use to bring everything together for a fun and fabulous feast! I've divided it up into 3 sections; entrees, sides and desert. Recipes are listed, and Im thinking of trying out a dry brining method for the turkey breast instead of a traditional we brine, see the turkey section below for additional details and some links to articles describing the science behind brining, which is quite interesting. The desert section is a bit bare at the moment as I think Martha has many of these recipes lying around the house on paper and such. 
+For the upcoming Thanksgiving feast I have put together the following document describing the menu, and the proposed recipes we use to bring everything together for a fun and fabulous feast! I've divided it up into 3 sections; entrees, sides and desert. Recipes are listed, and Im thinking of trying out a dry brining method for the turkey breast instead of a traditional we brine, see the turkey section below for additional details and some links to articles describing the science behind brining, which is quite interesting. The desert section is a bit bare at the moment as I think Martha has many of these recipes lying around the house on paper and such. 
 
 ## Entrees
 
