@@ -34,6 +34,10 @@
 * brown sugar
 * harissa paste
 * pecans
+* beer
+* seltzer
+* tube of cresent dough
+* pecans
 
 ## Diary
 
@@ -47,3 +51,4 @@
 * 8 oz fontina
 * 2 oz parmasan
 * monteray jack
+* 8 oz brie
