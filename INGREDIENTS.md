@@ -4,12 +4,17 @@
 
 * garlic 2-3 heads
 * shallots
-* 3 onion
+* 5 onion
 * celery
 * lemons
 * can of corn
 * jalapeno pepper
-* 4 rome and 4 granny smith apples
+* 4 rome and 6 granny smith apples
+* cranberries
+
+## Meats
+
+* Hot italian sausage
 
 ## Herbs
 
@@ -22,9 +27,10 @@
 
 ## Grocery
 
+* sour dough bread loaf
 * panko
 * elbow or penne pasta 24 oz
-* chicken stock
+* 2x chicken stock
 * brown sugar
 * harissa paste
 * pecans
