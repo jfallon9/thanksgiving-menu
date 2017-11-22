@@ -19,6 +19,8 @@ For the upcoming Thanksgiving feast I have put together the following document d
 * [All Purpose Biscuits](https://cooking.nytimes.com/recipes/1013741-all-purpose-biscuits)
 * [Corn Bread Muffins](https://cooking.nytimes.com/recipes/1013497-savory-cornbread-muffins-with-jalapenos-and-corn?utm_source=sharetools&utm_medium=email&utm_campaign=website)
 * [Carrots](https://www.bonappetit.com/recipe/harissa-and-maple-roasted-carrots)
+* Green Beans. Pan sauteed with some garlic
+* [Sweet Potatoes](http://allrecipes.com/recipe/21261/yummy-sweet-potato-casserole/)
 
 ## Desert
 
