@@ -11,6 +11,7 @@
 * jalapeno pepper
 * 4 rome and 6 granny smith apples
 * cranberries
+* 3 sweet potatoes
 
 ## Meats
 
